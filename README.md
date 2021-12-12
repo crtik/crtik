@@ -1,0 +1,5 @@
+-> Hi, I’m @crtik
+-> I’m interested in coding.
+-> I’m currently learning coding
+-> I’m looking to collaborate on nothing.
+-> How to reach me: not gonna tell ya.
